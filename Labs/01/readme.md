@@ -11,6 +11,8 @@ Q4 : ![image](https://github.com/Arsal-Here/Pf-Fall-23/assets/142867447/1df3ef99
 
 Q5: ![image](https://github.com/Arsal-Here/Pf-Fall-23/assets/142867447/b70ce5b0-deda-4ddb-b615-d69c1a1585ca)
 
+Q6 : ![image](https://github.com/Arsal-Here/Pf-Fall-23/assets/142867447/4e0b53cd-60a0-44e0-85c8-e7ed73ca72af)
+
 
 
 
